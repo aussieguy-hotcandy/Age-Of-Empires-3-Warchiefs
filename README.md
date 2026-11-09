@@ -216,4 +216,4 @@ The Warchiefs is the full free version, providing all features and updates witho
 Don't miss out on the chance to expand your empire! Download The Warchiefs today and immerse yourself in an unforgettable strategic experience!
 
 ---
-**Last updated:** 2026-11-08 20:11:01 UTC
+**Last updated:** 2026-11-09 00:31:42 UTC
